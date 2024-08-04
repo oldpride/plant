@@ -21,3 +21,13 @@ Chrysanthemum indicum is poisonous to cats, dogs, rodents, and grazing animals. 
 水芹菜 - Oenanthe javanica, commonly Java waterdropwort, water celery, water dropwort, Chinese celery, Indian pennywort, minari and Japanese parsley, 
 
 蓝堇菜 - Common blue violet (not 紫罗兰)
+
+daisy fleabane - 蒿,野蒿,千层塔
+
+todo:
+Lamb's quater - 灰菜
+eatables:
+nasturtiums - all parts eatable
+wineberry
+black mustard
+cheeseweed mallow 
