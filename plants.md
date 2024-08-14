@@ -57,8 +57,13 @@ Lamb's quater - wild spinach, white goosefoot, pigweed, fat hen, 灰菜
     leaves and stems are edible. 
 
 柔枝莠竹 - Japanese stiltgrass (Microstegium vimineum), 
-        also known as Asian stiltgrass
+        also known as Asian stiltgrass, chinese packing grass.
     leaves bottom seems to taste find.
+
+2024/08/10
+艾草 - mugwort
+加拿大一枝黄花 - canadian goldenrod
+
 
 todo:
 
@@ -68,3 +73,13 @@ nasturtiums - all parts eatable
 wineberry
 black mustard
 cheeseweed mallow 
+羊耳草晚安 - lamb's ear
+粟米草 - carpet weed, mollugo
+
+
+toxic:
+
+toxic - american black nightshade. berry is eatable only when the berry completely black - ripe. berries are in a brunch. pedle is smaller than berry. young (green or purple) berry, mature leaves are toxic, espeically when they taste bitter.
+toxic - black nightshade's relatives: bittersweet nighshade, red fruit
+toxic - black nightshade's relatives: deadly nightshade. single black berry; pedle is bigger than berry. berry is poisonous too.
+toxic - boneset
