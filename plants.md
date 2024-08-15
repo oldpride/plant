@@ -66,6 +66,9 @@ Lamb's quater - wild spinach, white goosefoot, pigweed, fat hen, 灰菜
 
 
 todo:
+茼蒿 - crown daisy, 
+       formally Chrysanthemum coronarium. 
+       related to 菊花脑 - Chrysanthemum indicum 'Nankingense'
 
 
 not found eatables:
@@ -73,11 +76,17 @@ nasturtiums - all parts eatable
 wineberry
 black mustard
 cheeseweed mallow 
-羊耳草晚安 - lamb's ear
+羊耳草- lamb's ear
 粟米草 - carpet weed, mollugo
 
 
 toxic:
+
+toxic - poison ivy
+    summer: green leaves of 3
+    fall:   white berry, red leaves
+    winter: hairy vine, no thorn. 
+    don't burn it because it could create toxic smoke.
 
 toxic - american black nightshade. berry is eatable only when the berry completely black - ripe. berries are in a brunch. pedle is smaller than berry. young (green or purple) berry, mature leaves are toxic, espeically when they taste bitter.
 toxic - black nightshade's relatives: bittersweet nighshade, red fruit
