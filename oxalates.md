@@ -1,0 +1,7 @@
+https://www.chhs.colostate.edu/krnc/monthly-blog/should-i-be-avoiding-oxalates/#:~:text=Some%20examples%20of%20foods%20that,body%20as%20a%20waste%20product.
+
+Oxalates can bind to calcium—and to a lesser extent—other minerals in the stomach and intestines. This binding can reduce absorption of these minerals inhibiting their ability to be used. For this reason, oxalates have been labeled an “anti-nutrient”. This label suggests that oxalates have a negative effect on nutrition status and health. However, this “anti-nutrient” effect is not as hindering as it may sound.
+
+There are several factors that affect the level of oxalates in foods, including the growing season, weather conditions, and the plant variety. For example, Avon spinach may have a higher oxalate content than Butterflay spinach. Cooking also significantly reduces oxalate content in food. Although certain foods may contain residual amounts of oxalates after cooking, the health benefits of eating these foods will likely outweigh any potential negative nutritional effects.
+
+Further, a specific type of bacteria that resides in the gut called Oxalobacter formignes breaks down oxalates and uses them for energy. This process prevents oxalates from binding to minerals and limiting their absorption. Studies have shown that people with low levels of oxalate-degrading bacteria in the gut and those with certain digestive disorders are more prone to higher levels of oxalates in the body.

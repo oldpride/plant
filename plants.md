@@ -64,11 +64,31 @@ Lamb's quater - wild spinach, white goosefoot, pigweed, fat hen, 灰菜
 艾草 - mugwort
 加拿大一枝黄花 - canadian goldenrod
 
+2024/08/16 
+羊耳草- lamb's ear
+    suggested cooking: battered and then fried.
+    I tried to stir fry it; bad texture.
 
-todo:
+2024/08/17
+光头稗 - Jungle rice
+    Echinochloa colona
+    young plant and shoots can be eaten. I tried. test a litte sweet.
+    seeds can be cooked whole, roasted, or boiled, or popped like popcorn.:w
+
+
+todo
+连明子 - Curly Dock
+    Rumex crispus L.
+    The seeds of curly dock were once roasted and used as a coffee substitute. The main uses of the curly dock plant today would be for food since the leaves, stalk, and the seeds are all edible.
+    young leaves can be eaten raw.
+    older leaves better to boil to remove oxalate.
 茼蒿 - crown daisy, 
        formally Chrysanthemum coronarium. 
        related to 菊花脑 - Chrysanthemum indicum 'Nankingense'
+
+芝麻菜 - 芸芥，Arugula, Rocket,
+    Eruca vesicaria
+    invasive, typically grows in dry, disturbed ground.
 
 
 not found eatables:
@@ -76,7 +96,7 @@ nasturtiums - all parts eatable
 wineberry
 black mustard
 cheeseweed mallow 
-羊耳草- lamb's ear
+
 粟米草 - carpet weed, mollugo
 
 
@@ -88,7 +108,13 @@ toxic - poison ivy
     winter: hairy vine, no thorn. 
     don't burn it because it could create toxic smoke.
 
-toxic - american black nightshade. berry is eatable only when the berry completely black - ripe. berries are in a brunch. pedle is smaller than berry. young (green or purple) berry, mature leaves are toxic, espeically when they taste bitter.
+toxic - Late Boneset
+
+toxic - american black nightshade. 
+    berry is eatable only when the berry completely black - ripe. 
+    berries are in a brunch. pedle is smaller than berry.
+    young (green or purple) berry, mature leaves are toxic, espeically
+    when they taste bitter.
 toxic - black nightshade's relatives: bittersweet nighshade, red fruit
 toxic - black nightshade's relatives: deadly nightshade. single black berry; pedle is bigger than berry. berry is poisonous too.
 toxic - boneset
