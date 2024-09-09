@@ -13,18 +13,24 @@ window key+H  - turn on speech recognition
     Spread
     Chrysanthemum indicum is widespread, ranging from Russia to Asia, Korea, China, and Europe. Mugwort spreads by rhizomes and is common in landscape plantings and turf.
     Toxicity
-    Chrysanthemum indicum is poisonous to cats, dogs, rodents, and grazing animals. While it's not clear if mugwort is poisonous, it's best to avoid ingesting any part of the plant
+    Chrysanthemum indicum is poisonous to cats, dogs, rodents, and grazing animals. 
+    it taste great while stir fried with  eggs.
+    
 
 马齿苋 - Portulaca oleracea, Common Purslane, little hogweed, pursley
     picked from Harrison packing lot and street curb; my driveway curb.
 
 车前草 - Plantago major, the broadleaf plantain, white man's footprint, waybread, or greater plantain
+    very bitter. cook with chili papers
 
 蒲公英 - Taraxacum, dandelions
 
 水芹菜 - Oenanthe javanica, commonly Java waterdropwort, water celery, water dropwort, Chinese celery, Indian pennywort, minari and Japanese parsley, 
 
 蓝堇菜 - Common blue violet (not 紫罗兰)
+    young leaves in spring and fall are edible. 
+    flowers in spring are edible.
+    !!!fruits, seeds, roots are toxic!!!
 
 2024/08/03 Blackberry (Brambles)
     picked by Madonna turf field
@@ -39,9 +45,11 @@ Slender yellow woodsorrel - 黄色酸味草， 酢浆草
     green 3-heart leaf
     yellow 5-star flower
     tart, lenmon taste
+    All parts of wood sorrel are edible including leaves, flowers, seed pods, and roots.
 
 2024/08/07
 Lamb's quater - wild spinach, white goosefoot, pigweed, fat hen, 灰菜
+    taste great when stir-fried with eggs
 
 2024/08/08
 芦苇 - common reed.
@@ -58,22 +66,28 @@ Lamb's quater - wild spinach, white goosefoot, pigweed, fat hen, 灰菜
 
 柔枝莠竹 - Japanese stiltgrass (Microstegium vimineum), 
         also known as Asian stiltgrass, chinese packing grass.
-    leaves bottom seems to taste find.
+    leaves bottom seems to taste fine.
 
 2024/08/10
 艾草 - mugwort
+    leaves and seeds are edible.
+    very bitter.
+    taste better when mixed with chili peppers.
+    todo: boil to remove bitterness.
+
 加拿大一枝黄花 - canadian goldenrod
 
 2024/08/16 
 羊耳草- lamb's ear
     suggested cooking: battered and then fried.
-    I tried to stir fry it; bad texture.
+    I tried to stir fry it; bad texture, hard to chew.
+    suggested way to eat is to wrap in flour and fry - not healthy then.
 
 2024/08/17
 光头稗 - Jungle rice
     Echinochloa colona
     young plant and shoots can be eaten. I tried. test a litte sweet.
-    seeds can be cooked whole, roasted, or boiled, or popped like popcorn.:w
+    seeds can be cooked whole, roasted, or boiled, or popped like popcorn
 
 
 todo
