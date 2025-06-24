@@ -89,6 +89,11 @@ Lamb's quater - wild spinach, white goosefoot, pigweed, fat hen, 灰菜
     young plant and shoots can be eaten. I tried. test a litte sweet.
     seeds can be cooked whole, roasted, or boiled, or popped like popcorn
 
+2025/05/10 
+红枫树翅果 - red maple fruit, helicopter, 
+    edible. feel the hulk. eat raw or roasted. a litter bitter, taste like soybean.
+    i found a tree by the old Prudential building on Route 10, bus stop, on north side
+    of the street. it matured around 05/01
 
 todo
 连明子 - Curly Dock
